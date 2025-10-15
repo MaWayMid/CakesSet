@@ -1,4 +1,4 @@
-# 少女们的社团：格内茨克（重制版）- 第五章 十月格内茨克风暴·下
+# 少女社团：格内茨克（重制版）- 第五章 十月格内茨克风暴·下
 梁志高此刻正带着老花镜，阅读着手里一沓厚厚的资料。  
 周围的人正不断忙碌着布置这里，梁志高的竞选办公室，尽管现在是国庆日假期。他们会在这里奋斗上个几十天，然后把这里恢复成原样。一个四十岁出头的年轻人走了过来，拍了拍梁志高的肩膀，“如果不是一点把握都没有，他们也不会派你来这里了吧。”这是梁志高的竞选经理，埃里森·兰特。梁志高回头苦笑了一下，兰特露出了同情的眼神，那眼神是同情背锅者的眼神。  
 “现在，”梁志高放下手里的资料，“我们探索一下如何体面地离场吧。”他望了望埃里森·兰特，后者向他点了点头，他自己也点了点头回敬。  
@@ -35,7 +35,7 @@ I ain't no fortunate one—— no——
 Some folks are born—— silver spoon in hand,  
 load don't them help themselves—— no.  
 But when the taxman comes—— to the door,  
-load the house look like a runmmage sale, yeah.  
+load the house look like a rummage sale, yeah.  
 It ain't me, it ain't me,  
 I ain't no millionaire son no, no.  
 It ain't me, it ain't me,  
@@ -43,7 +43,7 @@ I ain't no fortunate one, no.
 （蹬↑，蹬↑，蹬↑蹬↓蹬→动次动次动次动动次）  
 （蹬↑，蹬↑，蹬↑蹬↓蹬→Yeah——yeah!）  
 Some folks inherit star spangled eyes,  
-ooh, they send you down to war, laod!  
+ooh, they send you down to war, lord!  
 And when you ask them, how—— much should we give,  
 Ooh, they only answer More, more more!  
 It ain't me, it ain't me,  
